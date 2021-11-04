@@ -1,0 +1,1 @@
+ik heb deze website gemaakt, en ik weet al wat dngen an HTML. Dit template heb ik een keer gemaakt in mijn vrije tijd. Ik hoop dat u dat niet erg vindt!
